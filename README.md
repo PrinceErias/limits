@@ -1,6 +1,5 @@
-# limits
 /*
-A list of clear limits and boundaries. Do NOT push them, you will be blocked, and I will cut you out without warning no matter how brutal or blunt I need to be. I do not give a shit anymore.
+A list of clear limits and boundaries. Do NOT push them, you will be blocked, and I will cut you out, no matter how brutal or blunt I need to be. I do not give a shit anymore.
 Respect my fucking boundaries.
 These are subject to change. If you cannot keep up, that is not my problem. Fuck you.
 
@@ -13,3 +12,6 @@ These are subject to change. If you cannot keep up, that is not my problem. Fuck
   Don't ask me twice. When I say I heard you, that is that. If it is important to you, Great! It's porabably not important to me. And if you see that as YOU are not important to me, you probably aren't.
   You are not special (Unless I like you.).
   There are four or five people in this universe I give a shit about. No, I will not tell you if you are one of them. Act like you aren't.
+  If you think I care about you - I probably don't. 
+
+  Pretty much, you get 3 warnings. First warning, Verbal. Second warning, I block you until.. Well, until I feel like it. Third warning, bye. That's it. 
