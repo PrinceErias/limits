@@ -13,4 +13,7 @@ These are subject to change. If you cannot keep up, that is not my problem. Fuck
 	There are four or five people in this universe I give a shit about. No, I will not tell you if you are one of them. Act like you aren't.
 	If you think I care about you - I probably don't. 
 
+Oh, and remember: I do not need to explain myself to you, or to anyone.
 Pretty much, you get 3 warnings. First warning, Verbal. Second warning, I block you until.. Well, until I feel like it. Third warning, bye. That's it. 
+
+𝓖𝓸 𝓕𝓾𝓬𝓴 𝓨𝓸𝓾𝓻𝓼𝓮𝓵𝓯.
